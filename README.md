@@ -99,6 +99,6 @@
 
 ---
 
-**Автор:** @ТВОЙ_НИК  
-📎 Telegram-канал: [ссылка на канал]
+**Автор:** @marselcomp
+📎 Telegram-канал: t.me/whatmarsel
 
